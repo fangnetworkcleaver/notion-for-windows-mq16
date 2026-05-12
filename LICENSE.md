@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Notion for Windows extension with Notion for Windows automatic Extension: rich-text-editing & math-equations. Featuring rich-text-editing and math-equations, it's
 
 
 
